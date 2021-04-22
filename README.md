@@ -1,2 +1,2 @@
-# yiqing521125.github
+# yiqing521125.github.io
 Privacy Policy
